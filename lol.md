@@ -1,2 +1,0 @@
-![](/Users/albussas/lol.md)
-
